@@ -1,2 +1,2 @@
 # DnnrPrty
-Hotdish encounters with gay men near you
+Hotdish encounters near you
